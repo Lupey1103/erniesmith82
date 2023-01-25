@@ -30,7 +30,7 @@
 
 <br>
 
-## GitHub Thropies 🏆 :
+## GitHub Throphies 🏆 :
 
 <br>
 
